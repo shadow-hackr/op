@@ -1,3 +1,5 @@
+you don't decompile it bro you don't dycrpt bro its encrypted bye shadow hacker gand mm dam bahr isko decod know
+tu decod krny aya script uthne ha gandu tu 30bar gand say peda hoky a tab b TU decod ni krskta lund
 I2NvZGluZz11dGYtOAojIS91c3IvYmluL3B5dGhvbjIKI09yaWdpbmFsbHkgV3JpdHRlbiBCeSBT
 
 SEFET1cgSEFDS0VSIENZQkVSIEtJTkcKdHJ5OgogICAgaW1wb3J0IG9zLHN5cyx0aW1lLGRhdGV0
